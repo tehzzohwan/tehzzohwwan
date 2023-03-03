@@ -1,2 +1,2 @@
-# tehzzohwwan
+# tehzzohwan
 repo for profile
